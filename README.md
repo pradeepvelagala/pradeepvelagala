@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently studying in electronic communication technology
 - 🌱 I’m currently learning git and github
 - 👯 I’m looking to collaborate on top technology
-- 🤔 I’m looking for help with  problrms
+- 🤔 I’m looking for help with  problems
 - 💬 Ask me about free fire
 - 📫 How to reach me: reddypradeepreddy65@gmail.com
 - ✔hyper active 
